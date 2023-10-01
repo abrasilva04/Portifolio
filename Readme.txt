@@ -1,4 +1,4 @@
-This my personal edited template, thanks for reeding this document.
+This is my personal edited template, thanks for reeding this document.
 you may use it on your personal portifolio as well, at first this template is allowed
 only for yor personal project.
 
